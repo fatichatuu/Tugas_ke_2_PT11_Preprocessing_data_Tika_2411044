@@ -1,0 +1,1 @@
+# Tugas_ke_2_PT11_Preprocessing_data_Tika_2411044
